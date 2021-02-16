@@ -1,2 +1,2 @@
 # cv
-Joumana Ammar - Civil Engineer - CV
+Joumana Ammar - CV
